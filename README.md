@@ -1,5 +1,5 @@
 # 💫About Me :
-🏫 Neuromotor Science Master's Student
+🏫 Neuromotor Science PhD Student
 ⌚ Graduate Research in Personal Health Informatics and Rehabilitation Engineering Lab
 
 ## 🌐Socials
